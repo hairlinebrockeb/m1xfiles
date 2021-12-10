@@ -1,2 +1,2 @@
 # m1xfiles
-m1x files
+Hey, this is a place where i post my ideas!
